@@ -8,7 +8,8 @@
 
 
 
-![Uploading pony-town-taz-boop-blinking-padded-ponyplush-4x.gif…]()
+<img width="168" height="252" alt="pony-town-taz-boop-blinking-padded-ponyplush-4x" src="https://github.com/user-attachments/assets/a260b620-648a-4be6-a3bf-e0bb3ef7d9c3" />
+
 
 
 
