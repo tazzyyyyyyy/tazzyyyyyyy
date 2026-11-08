@@ -7,6 +7,6 @@
 
 
 
+<img width="200" height="92" alt="berry-strawberry" src="https://github.com/user-attachments/assets/46298f39-bc3d-4c04-ab4d-42114e2c0918" />
 
 
-<img width="220" height="291" alt="cute-bunny" src="https://github.com/user-attachments/assets/4ddd6cd1-5fb1-47ff-af7c-03e668e93df0" />
