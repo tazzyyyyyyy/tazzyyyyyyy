@@ -8,6 +8,7 @@
 
 
 
-<img width="200" height="92" alt="berry-strawberry" src="https://github.com/user-attachments/assets/46298f39-bc3d-4c04-ab4d-42114e2c0918" />
+![Uploading pony-town-taz-boop-blinking-padded-ponyplush-4x.gif…]()
+
 
 
