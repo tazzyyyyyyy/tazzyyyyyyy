@@ -1,8 +1,8 @@
 
 
-https://github.com/user-attachments/assets/47d7a57a-de8f-4dbb-81c6-58fb6834fe25
+<img width="640" height="480" alt="ezgif-1438b7276584c3f1" src="https://github.com/user-attachments/assets/a96488c4-c45c-44f2-951b-aa76f7b1e1f5" />
 
 
-<p align="center"><img width="640" height="640" alt="newjeans-newjeans-bunny" src="https://github.com/user-attachments/assets/8b8c788e-fef2-4327-a821-698041b60209" />
+
 
 
